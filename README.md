@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Xasman
 - 👀 I’m interested in music and audio related projects.
 - 🌱 I’m currently learning about... everything.
-- 💞️ I’m looking to collaborate on whatever captures my interest.
+- 💞️ I’m looking to collaborate on whatever captivates my interest.
 - 📫 How to reach me ...move your feet!
 
 <!---
